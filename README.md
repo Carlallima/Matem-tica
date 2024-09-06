@@ -1,4 +1,4 @@
-## **Matemágica: Divirta-se Aprendendo!**
+## **Matemágica: Divirta-se Aprendendo!** com a imersão Google Gemini
 
 **O que é a Matemágica?**
 
